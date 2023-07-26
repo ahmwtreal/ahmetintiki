@@ -1,0 +1,2 @@
+# ahmetintiki
+istediğiniz buysa buyrun
